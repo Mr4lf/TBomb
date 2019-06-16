@@ -39,6 +39,10 @@ Now the Script Will Execute..
  Updated Frequently
  Automated Future Updates
 
+## DEMO
+Watch Indian Bombing Method <a href="https://youtu.be/9KWkwsr_QGw">here</a> <br><br>
+Watch International Bombing Method <a href="https://youtu.be/JqsHkyIcnPM">here</a> <br><br>
+
 # CONTRIBUTORS
 
  SpeedX    ( Of Course Me ;-) )<br> 
